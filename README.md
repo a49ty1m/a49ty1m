@@ -1,1 +1,2 @@
+https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExY3NieDRhaGowdHdqcWRqbG1tdGNpYWM5MGJ0YXY0bnpjNDQ2MGJoZiZlcD12MV9naWZzX3NlYXJjaCZjdD1n/EZr27ZbJwmjE9PGyLN/giphy.gif
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Roboto+Mono&pause=10&color=FFD700&background=001F54&center=true&vCenter=true&multiline=true&width=434&height=80&lines=Hello+There%2C;I+Am+Aditya+Mishra)](https://git.io/typing-svg)
